@@ -1,4 +1,4 @@
-### Hi, im funerariaz 🌌
+### Hi, im san 🌌
 
 ![me](https://cdn.discordapp.com/attachments/857298622685249537/859450798139506748/3.gif)
 
